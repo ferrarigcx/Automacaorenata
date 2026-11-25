@@ -178,19 +178,25 @@ Mas sabe o que eu aprendi com a Kyra? Que amor não acaba quando a gente divide.
 
 ---
 
-## Capítulo 9 – Freya, a frajolinha da Vovó Lolo
+## Capítulo 9 – Freyja, a frajolinha da Vovó Lolo
 
-Um dia, apareceu mais uma gata na minha vida. Era uma **frajolinha**, toda preta e branca, como se estivesse sempre vestida de festa. O nome dela era **Freya**.
+A Mamãe também tem mãe: é a **Vovó Lolo**, dona do colo mais macio e da cama mais disputada da família.
+
+Um dia, a campainha da Vovó Lolo tocou. Era o **primo querido do Biel**, sorrindo de orelha a orelha. E ele não veio sozinho: no colo dele vinha uma **frajolinha**, toda preta e branca, como se estivesse sempre vestida de festa.
+
+— Lion, essa é a **Freyja** — disse ele.
+
+Eu cheirei de longe. Ela me olhou de cima a baixo, levantou o rabo e passou reto, como uma rainha entrando no castelo. Nenhum "oi", nenhum "muito prazer".
 
 Vou ser sincero: nós nunca fomos amigos. Ela tinha o nariz em pé, e eu também. Ela fingia que eu não existia, e eu fingia que ela não existia.
 
 Mas tinha um lugar onde ninguém fingia nada: **a cama da Vovó Lolo**.
 
-À noite, eu subia de um lado e a Freya subia do outro. Cada um no seu cantinho, de costas um para o outro, ninguém reclamava. E assim, juntinhos sem querer, a gente dormia a noite inteira.
+À noite, eu subia de um lado e a Freyja subia do outro. Cada um no seu cantinho, de costas um para o outro, ninguém reclamava. E assim, juntinhos sem querer, a gente dormia a noite inteira.
 
-Hoje a Freya mora com a Vovó Lolo. E eu aprendi com ela uma coisa importante: **a gente não precisa ser amigo de todo mundo, mas precisa respeitar todo mundo**. Quando há respeito, até uma cama pequena cabe dois corações cabeçudos.
+Hoje a Freyja mora com a Vovó Lolo. E eu aprendi com ela uma coisa importante: **a gente não precisa ser amigo de todo mundo, mas precisa respeitar todo mundo**. Quando há respeito, até uma cama pequena cabe dois corações cabeçudos.
 
-> 🎨 *Ilustração (a criar): Lion e Freya dormindo na cama da Vovó Lolo, cada um num canto e de costas um para o outro, mas com as caudas quase se tocando.*
+> 🎨 *Ilustração (a criar): Lion e Freyja dormindo na cama da Vovó Lolo, cada um num canto e de costas um para o outro, mas com as caudas quase se tocando.*
 
 **Depois de tanta gata, tanto colo e tanto ciúme, eu precisava de um pouco de ar fresco. E Copacabana tinha o melhor de todos: o mar.**
 
@@ -232,7 +238,7 @@ Já se passaram **13 anos**. O menino de 8 anos virou um homem de barba. Meu foc
 
 A felicidade não mora em coisas caras. Ela mora num colo, num banho de sol, num mergulho no mar e em alguém que chama o seu nome com amor.
 
-Às vezes, no fim da tarde, eu olho o pôr do sol e imagino todos os meus amigos ali, sentadinhos ao meu lado: o Adolfo, a Freya, a Kyra… Na vida real, eles nem sempre estiveram juntos. Mas no meu coração todos cabem, olhando o mesmo pôr do sol.
+Às vezes, no fim da tarde, eu olho o pôr do sol e imagino todos os meus amigos ali, sentadinhos ao meu lado: o Adolfo, a Freyja, a Kyra… Na vida real, eles nem sempre estiveram juntos. Mas no meu coração todos cabem, olhando o mesmo pôr do sol.
 
 > 🎨 Ilustração: `ilustracoes/cap10_por_do_sol.jpg`
 
