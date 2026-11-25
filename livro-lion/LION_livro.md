@@ -182,9 +182,9 @@ Mas sabe o que eu aprendi com a Kyra? Que amor não acaba quando a gente divide.
 
 A Mamãe também tem mãe: é a **Vovó Lolo**, dona do colo mais macio e da cama mais disputada da família.
 
-Um dia, a campainha da Vovó Lolo tocou. Era o **primo querido do Biel**, sorrindo de orelha a orelha. E ele não veio sozinho: no colo dele vinha uma **frajolinha**, toda preta e branca, como se estivesse sempre vestida de festa.
+Um dia, a campainha da Vovó Lolo tocou. Era o **Dudu**, o primo querido do Biel, sorrindo de orelha a orelha. E ele não veio sozinho: no colo do Dudu vinha uma **frajolinha**, toda preta e branca, como se estivesse sempre vestida de festa.
 
-— Lion, essa é a **Freyja** — disse ele.
+— Lion, essa é a **Freyja** — disse o Dudu.
 
 Eu cheirei de longe. Ela me olhou de cima a baixo, levantou o rabo e passou reto, como uma rainha entrando no castelo. Nenhum "oi", nenhum "muito prazer".
 
@@ -232,7 +232,7 @@ Disseram que eu era de raça. Eu não era. Eu era um vira-lata pequenininho, che
 
 Porque eu não sou um cachorro de raça que encontrou uma família. **Eu sou um cachorrinho que encontrou uma família, e isso vale mais do que qualquer pedigree do mundo.**
 
-Já se passaram **13 anos**. O menino de 8 anos virou um homem de barba. Meu focinho ficou um pouquinho mais branco. Mas, quando o Biel me pega no colo, eu ainda sinto o mesmo cheiro de biscoito, de brincadeira e de casa.
+Já se passaram **13 anos**. O menino de 8 anos virou um homem de barba. Ganhei uns pelinhos brancos no focinho e espalhados pelo corpo, como se o Papai Noel tivesse voltado para deixar mais um presente. Mas, quando o Biel me pega no colo, eu ainda sinto o mesmo cheiro de biscoito, de brincadeira e de casa.
 
 > 🎨 Ilustração: `ilustracoes/cap11_13_anos_depois.jpg`
 
